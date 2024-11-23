@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anushkasinha01@hotmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1La7n7LDPw36DUyQLv7l9TESUWEygfZo4/edit?usp=drive_link&ouid=116516245997492386317&rtpof=true&sd=true](https://docs.google.com/document/d/1La7n7LDPw36DUyQLv7l9TESUWEygfZo4/edit?usp=drive_link&ouid=116516245997492386317&rtpof=true&sd=true)
+- 📄 Know about my experiences https://docs.google.com/document/d/1smXm24ym1FXtIDNKueFX0jgauU6lXWHOwK4Yz5jDSr4/edit?tab=t.0  [https://docs.google.com/document/d/1La7n7LDPw36DUyQLv7l9TESUWEygfZo4/edit?usp=drive_link&ouid=116516245997492386317&rtpof=true&sd=true](https://docs.google.com/document/d/1smXm24ym1FXtIDNKueFX0jgauU6lXWHOwK4Yz5jDSr4/edit?tab=t.0)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
